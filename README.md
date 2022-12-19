@@ -19,3 +19,5 @@ The Skins I us princpaly on Osu!
 ## Other
 #### [All Of Everything V3.1 [White Edition]](https://drive.google.com/file/d/1sSumLojcPgOHF8AFGQPaFUwgTldoltP8/view?usp=sharing)
 ![](https://i.imgur.com/xyuRdvD.jpg)
+#### [Prawilosc vJP without followpoints() v2](https://drive.google.com/file/d/12496dLyR-OPeMOlqLi0bfHtHmG7i7goH/view?usp=sharing)
+![](https://i.imgur.com/VOFQOnC.jpg)
