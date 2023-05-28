@@ -7,8 +7,8 @@ The Skins I us princpaly on Osu!
 
 [Osu profil](https://osu.ppy.sh/users/26246663)
 
-## Yohanness Main Skin(All Version)
-#### [- V3 (Latest)](https://drive.google.com/file/d/14vUPbycsO3beIRaE3Y9K9c9D0wA1NZ9U/view?usp=sharing)
+## Blank Diamond(All Version)
+#### [- V3 (Latest)](https://drive.google.com/file/d/11CVRnUvuk09wGIzOLLGX70syrK3toHdC/view?usp=sharing)
 ![](https://i.imgur.com/CNps3nO.jpg)
 #### [- V2](https://drive.google.com/file/d/1ZftfMnfLitiE-0wRqvEsYGwMEBjuDohy/view?usp=share_link)
 ![](https://i.imgur.com/aZfMvq0.jpg)
